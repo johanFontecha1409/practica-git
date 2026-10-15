@@ -8,3 +8,5 @@
 
 
 
+No había transcurrido mucho tiempo cuando llamaron a la puerta y una voz dijo: "Abrid, hijitas. Soy vuestra madre, que estoy de vuelta y os traigo algo para cada una." Pero las cabritas comprendieron, por lo rudo de la voz, que era el lobo.
+
